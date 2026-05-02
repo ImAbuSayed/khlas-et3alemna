@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> عيونك تسحرني في هذا المساء
+> ونار الشوق تزيد البقاء
+> تعالي لقلبي نعيش في صفاء
+> هواك في روحي كأنه دواء
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
